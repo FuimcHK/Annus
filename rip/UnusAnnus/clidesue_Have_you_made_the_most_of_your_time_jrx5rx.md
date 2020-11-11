@@ -1,0 +1,7 @@
+## [Have_you_made_the_most_of_your_time](https://www.reddit.com/r/UnusAnnus/comments/jrx5rx/have_you_made_the_most_of_your_time/)
+I want to start this of by saying I love Unus Annus and Mark and Ethan and seeing them over this past year has been really fun. However over the past few months I’ve fallen behind watching every video that comes out so a few weeks ago I started catching up and I’m happy to say that I have successfully done so. But watching these videos started making me think about something which is mentioned a lot have I been making the most of the time I have not in terms of watching the channel but in life after some thinking I’ve came to the conclusion that I haven’t. I’ve been participating in my hobbies less and each day has felt more and more like I’m going through the motions. I know I’m sorry mark would be disappointed that I’m not living up to my full potential. But the reason I’m saying this is to remind everyone out there that sees this in the final days of Unus Annus that they need to make the most of their time because unlike Unus Annus you will never truly know how much time you have left. So live everyday to its fullest even on the hardest of days that is what this channel has taught me and I hope to put this knowledge into practice for the rest of my life. 
+Memento Mori Unus Annus.
+
+---
+
+submitted to [r/UnusAnnus](https://www.reddit.com/r/UnusAnnus) by [u/clidesue](https://www.reddit.com/user/clidesue)
