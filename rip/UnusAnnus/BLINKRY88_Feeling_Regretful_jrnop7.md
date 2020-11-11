@@ -1,0 +1,12 @@
+## [Feeling_Regretful](https://www.reddit.com/r/UnusAnnus/comments/jrnop7/feeling_regretful/)
+Hi all. This is my first post here and will be quite a long one but have to share with the community. I've been a big fan of Mark for years now he's been such a huge inspiration and help to me. I think it was my Amazing Brother who introduced him to me and My Awesome Sister began to watch him too. I haven't always watched as much of his content as I maybe should but always loved him. He came into our life's on the years that followed My Beautiful Mother passing away in January 2012. It wasn't immediately after started watching him but during the darkest times ever for me over the years that followed he was a true light in my life. My Sis has watched him even more consistently than me and is a huge fan too. 
+
+I didn't know as much about Ethan as hadn't seen much of Mark's content with his friends in the past. Me and My Sis did see Mark along with him at the You're Welcome tour though which was a truly amazing night. Getting to know Ethan has been awesome. I love him so much and he is now another true inspiration. Both Mark and Ethan have honestly saved my life. Seeing the combination of humour, bravery and emotional stuff on the channel has made it the best one ever in YouTube history.
+
+Now I feel really bad because know I can't watch all of the content on the channel in time. I have always been a big procrastinator and tend to just breeze myself into hating my past self often for decisions like this. What hits really hard this time is with some really bad events and missed opportunities in life I had the excuse to say I didn't realise that was going to happen at that point. This time I've known about the clock and channel deletion for ages but still didn't  watch all Mark and Ethans awesome content :( I put some videos off and chose other people and things to watch so many times and feel so guilty now. I feel like I've completely gone against what the channel stands for. I don't want others to feel bad too but for me personally I feel very regretful.
+
+I thank Mark, Ethan, Amy, Momiplier, etc so much for this channel and for giving us something so important in the history of the world. I love them so much and will try and learn the most important lesson from them. Memento Mori!
+
+---
+
+submitted to [r/UnusAnnus](https://www.reddit.com/r/UnusAnnus) by [u/BLINKRY88](https://www.reddit.com/user/BLINKRY88)
